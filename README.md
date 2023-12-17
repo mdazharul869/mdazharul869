@@ -1,4 +1,4 @@
-![logo](https://github.com/mdazharul869/mdazharul869/blob/main/Md%20Azharul.gif)
+![logo](https://github.com/mdazharul869/mdazharul869/blob/main/Freelancer%20(1).gif)
 <img align="right" src="https://visitor-badge.laobi.icu/badge?page_id=salesp07.salesp07" />
 
 <h1 align="center">
